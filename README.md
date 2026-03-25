@@ -1,1 +1,0 @@
-# M-todo-de-lectura-Global
